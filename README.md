@@ -8,3 +8,8 @@ bitballoon
 
 QR作成  
 [https://qr.quel.jp/form_bsc_url.php](https://qr.quel.jp/form_bsc_url.php)
+  
+>  0. woodjkkjuqa9.mlkcca.com  
+>  1. hotjjxt66u2.mlkcca.com  
+>  2. dogjkkjcidh.mlkcca.com  
+  
